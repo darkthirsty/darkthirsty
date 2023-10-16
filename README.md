@@ -1,1 +1,9 @@
-im good at playing MINECRAFT U CANT STOP ME
+Used to program stupid discord bots..
+
+desktop specs:
+
+I7-4770
+RTX 2060
+8GB RAM
+
+💀
