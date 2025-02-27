@@ -6,4 +6,3 @@ current pc specs:
 * RTX 2060
 * 8GB RAM
 
-💀
